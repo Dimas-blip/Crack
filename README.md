@@ -10,7 +10,7 @@ Yang penting gw dah beri tahu pemilik nya
 
 Gw Bukan recode yah bngsd
 
-Mau join grup agar dapat informasi dan mendapatkan lebih dulu script nya? 
+Mau join grup agar dapat informasi dan mendapatkan lebih dulu script nya yang lain? 
 
 Chat gw 082111628304 biar gw laporan ke dia ok 👌 
 
